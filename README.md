@@ -9,6 +9,6 @@ webpc 需要你有幕布账号
 
 本软件不支持下载其他软件！！！！因为点击下载跳转按钮，导致软件无法返回上一界面的，请清理后台，必要时重装本软件
 
-<a href="https://wwpl.lanzoue.com/b031zul9a密码:allf"> lanzou下载密码:allf</a>
+<a href="https://wwpl.lanzoue.com/b031zul9a"> lanzou下载密码:allf</a>
 
 [山猫的山猫](https://space.bilibili.com/543353261)
